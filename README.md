@@ -1,0 +1,2 @@
+# VeritabaniOdevi---Sakarya-Uni
+ 
